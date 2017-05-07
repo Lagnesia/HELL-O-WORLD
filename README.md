@@ -1,2 +1,3 @@
 # HELL-O-WORLD
-ㄱㄴㄷㄹㅁㅄㅇ
+gg
+it means good game
